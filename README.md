@@ -4,6 +4,10 @@
 
 > 🚀 Democratizing financial intelligence for 90M+ Indians using AI
 
+<img width="1893" height="875" alt="image" src="https://github.com/user-attachments/assets/a0ac44fd-be5c-449b-b646-65672e587457" />
+
+
+
 ---
 
 ## 📌 Overview
